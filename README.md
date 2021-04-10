@@ -1,0 +1,1 @@
+# safecottage.github.io
